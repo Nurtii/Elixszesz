@@ -1,0 +1,4 @@
+- 👋 Hi, I"m Eli
+- 🌠 please be patient when interacting with me, i have adhd
+- 🌱 please dont interact with me if im wtih my friends (unless i do it firts) 
+- 📫 READ RENTRY FOR MORE INFO!!1
